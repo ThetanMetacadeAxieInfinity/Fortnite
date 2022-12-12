@@ -2,7 +2,6 @@
 Fortnite Cheat Download Download Cheat Fortnite 2023 PC Free Install Now for Windows 7, 8.1 & 10 compatibility testing for Windows XP, Vista
 
 
-![vTcNofK](https://user-images.githubusercontent.com/118502462/206925178-bf3c2216-7924-42ad-b3b5-5e18f2e51c60.png)
 
 # Fortnite Cheat Download Windows Install Now for Window
 
